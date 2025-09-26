@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rachmadmaulanaaa@gmail.com**
 
-- 📄 Know about my experiences [https://rachmadmaulanaj.github.io/cv](https://rachmadmaulanaj.github.io/cv)
+- 📄 Know about my experiences [CV](https://rachmadmaulanaj.github.io/assets/files/CV.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
